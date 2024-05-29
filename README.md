@@ -1,0 +1,1 @@
+# Language-Pack-Chinese-Traditional-for-DiscordPlus
